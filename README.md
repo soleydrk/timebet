@@ -1,5 +1,4 @@
 # timebet
-
 Timebet: Timebet ⚡ Kolayca Kazan, Hızla Çek!
 
 # <a href="https://yenilink.org/girislinki">✨ Timebet’e Giriş İçin Tıkla! ✅</a>  
