@@ -12,3 +12,4 @@ Timebet: Timebet ⚡ Kolayca Kazan, Hızla Çek!
 
 🎯 Timebet ile 🏆 bahis yaparken kazanç sağlamak çok kolay! Yüksek oranlar ve geniş seçeneklerle kazanç elde edin, kazancınızı hızla çekin. Hızlı ve güvenli işlem  ile her zaman kazançlı çıkın! 💸
 
+<a href="https://yenilink.org/girislinki"><img src="https://s13.gifyu.com/images/b2l9N.gif"></a> 
